@@ -2,7 +2,7 @@
 
 Mainly focusing on the UK, London, Camden, but we'll see over time.
 
-## Camden  London mutual assistance groups
+## Camden (London) mutual assistance groups
 
 Camden Whatsapp groups for multual assistance ([original post on Facebook](https://www.facebook.com/groups/199172994722225/permalink/199896187983239/))
 
