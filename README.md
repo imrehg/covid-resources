@@ -28,7 +28,7 @@ Note: it may take a few days for the groups to get active and organised as each 
 * King's Cross Ward https://tinyurl.com/KingsCrossCovidMutualAid
 * Regent's Park Ward https://chat.whatsapp.com/FVNAO5znWHaJDPMpO7t7NW
 * St Pancras & Somers Town Ward https://tinyurl.com/StPancrasSommersCovidMutualAid
-* Swiss Cottage Ward https://tinyurl.com/SwissCottageCovidMutualAid
+* Swiss Cottage Ward https://chat.whatsapp.com/EkeXnKzfb9027At44pWobn
 * West Hampstead Ward https://tinyurl.com/WestHampsteadCovidMutualAid
 
 ### Other London mutual assistance groups
