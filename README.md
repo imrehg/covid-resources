@@ -2,6 +2,9 @@
 
 Mainly focusing on the UK, London, Camden, but we'll see over time.
 
+**Note**: instead of checking this list, likely https://covidmutualaid.org/ is
+a better place to look, as possibly more up to date.
+
 ## Camden (London) mutual assistance groups
 
 Camden Whatsapp groups for multual assistance ([original post on Facebook](https://www.facebook.com/groups/199172994722225/permalink/199896187983239/))
